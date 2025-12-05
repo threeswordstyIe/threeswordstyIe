@@ -1,2 +1,2 @@
   ![Visitor Count](https://komarev.com/ghpvc/?username=threeswordstyIe&abbreviated=true&color=lightgrey&style=plastic&label=♡)
-![IMG_0452](https://github.com/user-attachments/assets/0375797d-2d37-46fd-a067-4ea9bce37dd6)
+<img width="732" height="113" alt="__About_Me__૮__ིྀ_____ིྀ_ა__Pin_____Back__-removebg-preview" src="https://github.com/user-attachments/assets/bd7af048-4c0e-4761-a90f-c3a2d90e1bb7" />
